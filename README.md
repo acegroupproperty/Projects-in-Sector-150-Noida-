@@ -74,7 +74,7 @@ The growing importance of Noida International Airport adds another factor to the
 
 ## What Makes ACE Arte Relevant for Family Buyers?
 
-For buyers looking for a larger home in Sector 150, {ACE Arte brings together 3 and 4 BHK}(https://acearte.in/) configurations with a lifestyle-oriented amenity offering.
+For buyers looking for a larger home in Sector 150, [ACE Arte brings together 3 and 4 BHK](https://acearte.in/) configurations with a lifestyle-oriented amenity offering.
 
 Its location provides access to the FNG Expressway, Noida-Greater Noida Expressway and DND Flyway, while Noida International Airport adds another major regional connectivity point. The combination of residential space, sports facilities, wellness areas and landscaped features can appeal to families looking for more than just an apartment.
 
